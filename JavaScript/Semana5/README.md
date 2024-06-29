@@ -1,0 +1,1 @@
+![Detalle del trabajo de semana 5](<Scrum NADIA PEREYRA semana 5.png>)
